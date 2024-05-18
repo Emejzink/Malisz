@@ -2,6 +2,8 @@
 
 # [🟪Twitch🟪](https://twitch.tv/gdinvi)
 
+# [zwykly_tekkito](https://drive.google.com/file/d/1ywD3gVlf_RhRiz9Afn9hWBEvgfIa-fhB/view?usp=sharing)
+![](https://i.imgur.com/PGdJCpE.jpeg)
 # [MISIA](https://drive.google.com/file/d/1oAGS04ZZkgM5R8gtfI10TSnu4lGaZuhe/view?usp=sharing)
 ![](https://i.imgur.com/Xdf760a.jpeg)
 # [MISKAMODELKA](https://drive.google.com/file/d/1YD1iFgBiY1ym7zYiMVt5akXIQSnEWaNH/view?usp=sharing)

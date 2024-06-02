@@ -2,6 +2,10 @@
 
 # [🟪Twitch🟪](https://twitch.tv/gdinvi)
 
+# [swirson_michael](https://drive.google.com/file/d/1bCwlUorkvnpynsWslnkBbzq1yXTDpBSd/view?usp=sharing)
+![](https://i.imgur.com/6R61BFn.jpeg)
+# [adrian_nowak_zalno](https://drive.google.com/file/d/1R5NA3wBRVYYQy0EV_aQ6iOiNCbygqp5M/view?usp=sharing)
+![](https://i.imgur.com/YPkEaEa.jpeg)
 # [zwykly_tekkito](https://drive.google.com/file/d/1ywD3gVlf_RhRiz9Afn9hWBEvgfIa-fhB/view?usp=sharing)
 ![](https://i.imgur.com/PGdJCpE.jpeg)
 # [MISIA](https://drive.google.com/file/d/1oAGS04ZZkgM5R8gtfI10TSnu4lGaZuhe/view?usp=sharing)

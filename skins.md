@@ -1,10 +1,10 @@
 # Maliszewski skins 🎁
 > [!NOTE]
-> Last updated: 04/06/2024
+> Last updated: 09/06/2024
 # [🟪Twitch🟪](https://twitch.tv/gdinvi)
 
-# [aristia_poddymiona](https://drive.google.com/file/d/1xbiT3C9UsOARGhdc9Xv09x3mJysj4F1t/view?usp=sharing)
-![](https://i.imgur.com/pPbezmm.jpeg)
+# [aristia_poddymiona](https://drive.google.com/file/d/1p5hRlFTr48H_9wPnCjxS4rPA1qan-90B/view?usp=sharing)
+![](https://i.imgur.com/Slo2lgR.jpeg)
 # [swirson_michael](https://drive.google.com/file/d/1bCwlUorkvnpynsWslnkBbzq1yXTDpBSd/view?usp=sharing)
 ![](https://i.imgur.com/6R61BFn.jpeg)
 # [adrian_nowak_zalno](https://drive.google.com/file/d/1R5NA3wBRVYYQy0EV_aQ6iOiNCbygqp5M/view?usp=sharing)

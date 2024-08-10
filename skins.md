@@ -1,8 +1,10 @@
 # Maliszewski skins 🎁
 > [!NOTE]
-> Last updated: 09/06/2024
-# [🟪Twitch🟪](https://twitch.tv/gdinvi)
+> Last updated: 10/08/2024
+# [🟪Twitch🟪](https://twitch.tv/maliszewski)
 
+# [tekkitoietherialnowy](https://drive.google.com/file/d/1ccp850Tw7Z6OLla-ZkQT9B_6sre7msCF/view?usp=sharing)
+![](https://i.imgur.com/P6RssNB.jpeg)
 # [aristia_poddymiona](https://drive.google.com/file/d/1p5hRlFTr48H_9wPnCjxS4rPA1qan-90B/view?usp=sharing)
 ![](https://i.imgur.com/Slo2lgR.jpeg)
 # [swirson_michael](https://drive.google.com/file/d/1bCwlUorkvnpynsWslnkBbzq1yXTDpBSd/view?usp=sharing)
